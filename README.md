@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Agafarki2011
+- 👀 I’m interested in coding and gaming
+- 🌱 I’m currently learning how to build an app
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me: mail@oemer-cakar.de 
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I have started with coding when I was 9 years old.
